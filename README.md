@@ -1,1 +1,0 @@
-# bradmcglynn.github.io
